@@ -1,2 +1,3 @@
 # entwurf-41
-Entwurf (Vorrat)
+
+Unverbindlicher Entwurf von Leon Oßendorf für die Kinderärzte Borghorst & Ochtrup. Kein offizieller Auftritt der Praxis. noindex.
